@@ -1,16 +1,14 @@
-## Hi there 👋
+Bem vindos ao meu perfil 😊🥀🤩
 
-<!--
-**Ray-Star-one/Ray-Star-One** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  -- Estou me desenvolvendo no    [Alura](https://tenor.com/9taZ.gif)  ;
 
-Here are some ideas to get you started:
+-- Gosto de adrenalina e viver momentos incriveis, não morrendo tá ótimo ;
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-- Amo de paixão mistérios e lendas antigas como tesouros e tals ;
+
+-- A vida é muito curta pra se importar com coisas que não estão no seu controle; 
+
+--O mistério está nos detalhes 😉 ;
+
+
+![](https://tenor.com/9taZ.gif)

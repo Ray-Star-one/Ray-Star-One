@@ -10,6 +10,4 @@ Bem vindos ao meu perfil 😊🥀🤩
 
 --O mistério está nos detalhes 😉 ;
 
-
-
-![](https://tenor.com/9taZ.gif)
+![](https://media1.tenor.com/m/ssscW-8K-7wAAAAC/penguins-of-madagascar-madagascar.gif)
